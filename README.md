@@ -4,6 +4,6 @@ I'm **truly happy** to take you through My Journey keeping this site as a medium
 
 I have been **Practising** two very important things in this journey and Following it with **My Heart and Soul** for which I find a lot of **SUCCESS!**
 
-1 - By not **neglecting and/or disqualifying** a person based on their **career history:)
+1 - By not **neglecting and/or disqualifying** a person based on their **career history:)**
 
-2 - I want to be the **ROCKSTAR in what I DO, this is My Passion, Career and finally the Bread n Butter which I'll be ever THANKFUL For!
+2 - I want to be the **ROCKSTAR in what I DO, this is My Passion, Career and finally the Bread n Butter which I'll be ever THANKFUL For!**
