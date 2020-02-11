@@ -1,37 +1,9 @@
-## Welcome to GitHub Pages
+**Welcome, it's nice E-Meeting you!**
 
-You can use the [editor on GitHub](https://github.com/SumanthKrishna96/Sumanth_Krishna/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
+I'm **truly happy** to take you through My Journey keeping this site as a medium. It has been a **Wonderful and Joyous** time for me being a Talent Advisor supporting almost all different domains with **One & Only Goal of Impacting Peoples' Life** and **being a part of their Successful Professional Journey, Happy Times & Celebrations + Uplifting the ones who feel down in their career by helping them with possible counselling.**
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+I have been **Practising** two very important things in this journey and Following it with **My Heart and Soul** for which I find a lot of **SUCCESS!**
 
-### Markdown
+1 - By not **neglecting and/or disqualifying** a person based on their **career history:)
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/SumanthKrishna96/Sumanth_Krishna/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+2 - I want to be the **ROCKSTAR in what I DO, this is My Passion, Career and finally the Bread n Butter which I'll be ever THANKFUL For!
